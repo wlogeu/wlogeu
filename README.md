@@ -1,2 +1,2 @@
 i will do this someday ok ok 
-![meow](https://tenor.com/en-GB/view/among-us-among-us-show-gif-30982677326172606)
+![meow](https://media1.tenor.com/m/AG4SlLQ3kb4AAAAC/among-us-among-us-show.gif)
